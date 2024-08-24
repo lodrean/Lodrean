@@ -8,7 +8,7 @@
   
 Написать мне на почту: lodrean@yandex.ru
 
-Написать мне в Телеграм: t.me/lodrean
+Написать мне в Телеграм: [t.me/lodrean](https://t.me/Lodrean)
 
 
 <!--
